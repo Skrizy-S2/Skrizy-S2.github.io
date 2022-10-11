@@ -1,1 +1,1 @@
-# Skrizy#4333
+# https://skrizy.me/
